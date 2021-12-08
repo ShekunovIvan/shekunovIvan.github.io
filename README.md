@@ -1,1 +1,0 @@
-# shekunovIvan.github.io
